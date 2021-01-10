@@ -1,0 +1,1 @@
+I'm new to this! Not really comfortable yet with blogging. I simply want to finish this task so I can get used to the workflow here on Github. I have faith that this will upskill me and open new career paths. Taking this one step at a time. Thank you Lord for this blessing.
